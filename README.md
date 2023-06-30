@@ -3,5 +3,3 @@
 - 🌱 Radiology Professional
 - 💞️ Single
 - 📫 Indiangovethicalhacker@pm.me, 8157008434
-
-
